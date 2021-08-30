@@ -1,1 +1,1 @@
-# List-of-International-Schools-in-India
+# List of International Schools in India
